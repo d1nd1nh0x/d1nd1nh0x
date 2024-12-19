@@ -4,11 +4,11 @@
         <td style="width: 10%; vertical-align: middle;">
             <p style="font-family: monospace; font-size: 80px;">
                 
-        D1nD1nh0x
+        D1nD1nh0x ☯
     
 </p>                                                                  
         
-    about me ♥︎
+    about me ☯
 
     
     │▸ ele/dele
